@@ -24,3 +24,8 @@ https://kavyasinghkundu.com/ <br/>
 https://inaaya.info/ <br/>
 https://inaayashopsmarter.com/ <br/>
 https://cipio.ai/ <br/>
+
+
+SMALL CONTRIBUTIONS:
+
+https://culinarycraft.in/pages/success-stories
