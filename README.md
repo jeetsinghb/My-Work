@@ -14,6 +14,7 @@ https://gymex.online/ <br/>
 https://www.jnafau.ac.in/ <br/>
 https://www.epilicious.in/ <br/>
 https://www.cleanux.in/ <br/>
+https://www.easternlogica.com/ <br/>
 http://imaginaryfilms.in/ <br/>
 https://digitactix.com/ <br/>
 http://printsouq.ae/ <br/>
