@@ -19,6 +19,8 @@ http://imaginaryfilms.in/ <br/>
 https://digitactix.com/ <br/>
 http://printsouq.ae/ <br/>
 https://www.learningthroughfun.in/ <br/>
+https://www.visualwaysstore.com/
 https://kavyasinghkundu.com/ <br/>
+https://inaaya.info/ <br/>
 https://inaayashopsmarter.com/ <br/>
 https://cipio.ai/ <br/>
