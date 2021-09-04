@@ -34,6 +34,7 @@ https://cipio.ai/ <br/>
 SOME CONTRIBUTIONS:
 
 https://culinarycraft.in/pages/success-stories <br/>
+https://tejcovision.com/master-strokes/ <br/>
 https://woodpeckersglobal.com/ <br/>
 https://www.ammarzo.com/ <br/>
 https://www.abrarme.com/ <br/>
