@@ -1,6 +1,6 @@
 # My Work
 
-My Codepen: https://codepen.io/TarjeetSingh <br/>
+My Codepen: https://codepen.io/TarjeetSingh/pens/public <br/>
 
 Just a list of websites which I have Completed and Worked on...
 
