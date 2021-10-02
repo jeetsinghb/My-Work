@@ -5,6 +5,7 @@ My Codepen: https://codepen.io/TarjeetSingh/pens/public <br/>
 Just a list of websites which I have Completed and Worked on...
 
 COMPLETED: <br/>
+https://printsouq.ae/ <br/>
 https://tvaconseil.com/ (French Site) <br/>
 https://trava.in/ <br/>
 https://coach-to-transformation.com/ <br/>
