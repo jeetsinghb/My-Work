@@ -28,7 +28,6 @@ https://www.visualwaysstore.com/ <br/>
 https://kavyasinghkundu.com/ <br/>
 https://inaaya.info/ <br/>
 https://inaayashopsmarter.com/ <br/>
-https://cipio.ai/ <br/>
 
 
 SOME CONTRIBUTIONS:
@@ -37,4 +36,4 @@ https://culinarycraft.in/pages/success-stories <br/>
 https://tejcovision.com/master-strokes/ <br/>
 https://woodpeckersglobal.com/ <br/>
 https://www.ammarzo.com/ <br/>
-https://www.abrarme.com/ <br/>
+https://cipio.ai/ <br/>
