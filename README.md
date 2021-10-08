@@ -6,7 +6,7 @@ Just a list of websites which I have Completed and Worked on...
 
 COMPLETED: <br/>
 https://printsouq.ae/ <br/>
-https://tvaconseil.com/ (French Site) <br/>
+https://tvaconseil.com/ <br/>
 https://trava.in/ <br/>
 https://coach-to-transformation.com/ <br/>
 https://www.ysrafu.ac.in/ <br/>
@@ -23,7 +23,6 @@ https://www.cleanux.in/ <br/>
 https://www.easternlogica.com/ <br/>
 http://imaginaryfilms.in/ <br/>
 https://digitactix.com/ <br/>
-http://printsouq.ae/ <br/>
 https://www.learningthroughfun.in/ <br/>
 https://www.visualwaysstore.com/ <br/>
 https://kavyasinghkundu.com/ <br/>
