@@ -12,6 +12,7 @@ https://coach-to-transformation.com/ <br/>
 https://www.ysrafu.ac.in/ <br/>
 https://www.svstorages.com/ <br/>
 https://www.easyagreement.in/ <br/>
+https://www.hitachi-flexipaymentsolutions.com/
 https://exellartech.com/ <br/>
 
 
