@@ -24,6 +24,8 @@ https://www.cleanux.in/ <br/>
 https://www.easternlogica.com/ <br/>
 http://imaginaryfilms.in/ <br/>
 https://digitactix.com/ <br/>
+https://www.pelltechhealthcare.com/ <br/>
+https://www.fashion-identity.com/ <br/>
 https://www.learningthroughfun.in/ <br/>
 https://www.visualwaysstore.com/ <br/>
 https://kavyasinghkundu.com/ <br/>
