@@ -16,6 +16,7 @@ https://exellartech.com/ <br/>
 
 WITH TEAM: <br/>
 https://gymex.online/ <br/>
+https://www.proyuja.in/ <br/>
 https://www.epilicious.in/ <br/>
 https://www.cleanux.in/ <br/>
 https://www.easternlogica.com/ <br/>
@@ -24,6 +25,7 @@ https://www.pelltechhealthcare.com/ <br/>
 https://www.fashion-identity.com/ <br/>
 https://www.learningthroughfun.in/ <br/>
 https://inaaya.info/ <br/>
+https://www.richmondedu.co.in/ <br/>
 
 
 SOME CONTRIBUTIONS:
