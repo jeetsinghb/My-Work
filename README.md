@@ -11,26 +11,19 @@ https://trava.in/ <br/>
 https://coach-to-transformation.com/ <br/>
 https://www.ysrafu.ac.in/ <br/>
 https://www.svstorages.com/ <br/>
-https://www.easyagreement.in/ <br/>
-https://www.hitachi-flexipaymentsolutions.com/ <br/>
 https://exellartech.com/ <br/>
 
 
 WITH TEAM: <br/>
 https://gymex.online/ <br/>
-https://www.jnafau.ac.in/ <br/>
 https://www.epilicious.in/ <br/>
 https://www.cleanux.in/ <br/>
 https://www.easternlogica.com/ <br/>
 http://imaginaryfilms.in/ <br/>
-https://digitactix.com/ <br/>
 https://www.pelltechhealthcare.com/ <br/>
 https://www.fashion-identity.com/ <br/>
 https://www.learningthroughfun.in/ <br/>
-https://www.visualwaysstore.com/ <br/>
-https://kavyasinghkundu.com/ <br/>
 https://inaaya.info/ <br/>
-https://inaayashopsmarter.com/ <br/>
 
 
 SOME CONTRIBUTIONS:
@@ -40,3 +33,4 @@ https://tejcovision.com/master-strokes/ <br/>
 https://woodpeckersglobal.com/ <br/>
 https://www.ammarzo.com/ <br/>
 https://cipio.ai/ <br/>
+https://digitactix.com/ <br/>
