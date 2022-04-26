@@ -9,7 +9,6 @@ https://printsouq.ae/ <br/>
 https://tvaconseil.com/ <br/>
 https://trava.in/ <br/>
 https://coach-to-transformation.com/ <br/>
-https://www.ysrafu.ac.in/ <br/>
 https://www.svstorages.com/ <br/>
 https://exellartech.com/ <br/>
 
